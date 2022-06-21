@@ -1,0 +1,2 @@
+# 46275040_Krushna_Lasure_resume
+Krushna_Capgemini_resume
